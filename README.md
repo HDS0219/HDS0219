@@ -16,6 +16,6 @@ Some of my projects:
 
 ## Get in touch
 
-📱 Phone: +55 (21) 96885-5297
+Email: dan1902heller@gmail.com
 
 Feel free to check out my repos or reach out if you want to collaborate on something.
